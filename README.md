@@ -2,7 +2,7 @@
 - ✔️ YOUR GO-TO DESIGN PLAN 
 - ✔️ One flat fee for design services to scale your business
 - ✔️ Let us handle your design, you focus on making profits
-- 👀 https://zypx.com
+- 👀 https://ezypx.com
 - 📫 hi@ezypx.com
 
 <!---
